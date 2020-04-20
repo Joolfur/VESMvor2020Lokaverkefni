@@ -1,0 +1,1 @@
+# VESMvor2020Lokaverkefni
